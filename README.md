@@ -1,5 +1,5 @@
 # Account Generator (XBOX)
-Paid unpatched mass generator for $60 !!: https://onlp.sellix.io or in dc server
+Paid unpatched mass generator for $60 !!: https://minloxsito.sellix.io or in dc server
 
 ## Authors
 
